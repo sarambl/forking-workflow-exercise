@@ -14,4 +14,4 @@ Peru. If you can make the pickles with Peruvian aji amarillo, please do.
 - Yogurt
 - Tortilla of choice, warmed in a dry pan
 
-Maybe we should add some chili
+Maybe we should add some more Chili? or maybe not
